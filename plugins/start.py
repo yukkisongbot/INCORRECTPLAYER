@@ -200,11 +200,11 @@ __**🌷 𝐁𝐢𝐤𝐚𝐬𝐡 𝐕𝐢𝐝𝐞𝐨 𝐓𝐫𝐚𝐜𝐤 𝐈
 𝐍𝐨 𝐋𝐚𝐠 𝐕𝐂 𝐌𝐮𝐬𝐢𝐜 𝐏𝐥𝐚𝐲𝐞𝐫 𝐁𝐨𝐭.
 
 ┏━━━━━━━━━━━━━━━━━┓
-┣★ 𝐎𝐰𝐧𝐞𝐫'𝐱𝐃 : [𝐁𝐢𝐤𝐚𝐬𝐡 𝐇𝐚𝐥𝐝𝐞𝐫](https://t.me/BikashHalder)
-┣★ 𝐎𝐰𝐧𝐞𝐫'𝐱𝐃 : [𝐀𝐝𝐢𝐭𝐲𝐚 𝐇𝐚𝐥𝐝𝐞𝐫](https://t.me/AdityaHalder)
-┣★ 𝐔𝐩𝐝𝐚𝐭𝐞𝐬 » : [𝐁𝐠𝐭 𝐎𝐟𝐟𝐢𝐜𝐢𝐚𝐥](https://t.me/BikashGadgetsTech)
-┣★ 𝐒𝐮𝐩𝐩𝐨𝐫𝐭 » : [𝐁𝐠𝐭 𝐂𝐡𝐚𝐭](https://t.me/Bgt_Chat)
-┣★ 𝐂𝐡𝐚𝐭𓂸 » : [𝐀𝐝𝐢𝐭𝐲𝐚 𝐃𝐢𝐬𝐜𝐮𝐬](https://t.me/AdityaDiscus)
+┣★ 𝐎𝐰𝐧𝐞𝐫'𝐱𝐃 : [𝐉𝐊 𝐀𝐁𝐇𝐈](https://t.me/JK_Abhishek)
+┣★ 𝐎𝐰𝐧𝐞𝐫'𝐱𝐃 : [𝐀𝐁𝐇𝐈 𝐇𝐚𝐥𝐝𝐞𝐫](https://t.me/Jk_abhishek)
+┣★ 𝐔𝐩𝐝𝐚𝐭𝐞𝐬 » : [𝐘𝐮𝐤𝐤𝐢 𝐎𝐟𝐟𝐢𝐜𝐢𝐚𝐥](https://t.me/Yukkisongupdate)
+┣★ 𝐒𝐮𝐩𝐩𝐨𝐫𝐭 » : [𝐘𝐮𝐤𝐤𝐢 𝐂𝐡𝐚𝐭](https://t.me/Yukkisongsupport)
+┣★ 𝐂𝐡𝐚𝐭𓂸 » : [𝐘𝐮𝐤𝐤𝐢 𝐃𝐢𝐬𝐜𝐮𝐬](https://t.me/yukkisongsupport)
 ┗━━━━━━━━━━━━━━━━━┛
 
 💞 𝐉𝐮𝐬𝐭 𝐀𝐝𝐝 𝐌𝐞 » 𝐓𝐨 𝐘𝐨𝐮𝐫 𝐆𝐫𝐨𝐮𝐩 𝐀𝐧𝐝
@@ -235,11 +235,11 @@ __**🌷 𝐁𝐢𝐤𝐚𝐬𝐡 𝐕𝐢𝐝𝐞𝐨 𝐓𝐫𝐚𝐜𝐤 𝐈
 𝐍𝐨 𝐋𝐚𝐠 𝐕𝐂 𝐌𝐮𝐬𝐢𝐜 𝐏𝐥𝐚𝐲𝐞𝐫 𝐁𝐨𝐭.
 
 ┏━━━━━━━━━━━━━━━━━┓
-┣★ 𝐎𝐰𝐧𝐞𝐫'𝐱𝐃 : [𝐁𝐢𝐤𝐚𝐬𝐡 𝐇𝐚𝐥𝐝𝐞𝐫](https://t.me/BikashHalder)
-┣★ 𝐎𝐰𝐧𝐞𝐫'𝐱𝐃 : [𝐀𝐝𝐢𝐭𝐲𝐚 𝐇𝐚𝐥𝐝𝐞𝐫](https://t.me/AdityaHalder)
-┣★ 𝐔𝐩𝐝𝐚𝐭𝐞𝐬 » : [𝐁𝐠𝐭 𝐎𝐟𝐟𝐢𝐜𝐢𝐚𝐥](https://t.me/BikashGadgetsTech)
-┣★ 𝐒𝐮𝐩𝐩𝐨𝐫𝐭 » : [𝐁𝐠𝐭 𝐂𝐡𝐚𝐭](https://t.me/Bgt_Chat)
-┣★ 𝐂𝐡𝐚𝐭𓂸 » : [𝐀𝐝𝐢𝐭𝐲𝐚 𝐃𝐢𝐬𝐜𝐮𝐬](https://t.me/AdityaDiscus)
+┣★ 𝐎𝐰𝐧𝐞𝐫'𝐱𝐃 : [𝐉𝐊 𝐀𝐁𝐇𝐈](https://t.me/JK_Abhishek)
+┣★ 𝐎𝐰𝐧𝐞𝐫'𝐱𝐃 : [𝐀𝐁𝐇𝐈 𝐇𝐚𝐥𝐝𝐞𝐫](https://t.me/Jk_abhishek)
+┣★ 𝐔𝐩𝐝𝐚𝐭𝐞𝐬 » : [𝐘𝐮𝐤𝐤𝐢 𝐎𝐟𝐟𝐢𝐜𝐢𝐚𝐥](https://t.me/Yukkisongupdate)
+┣★ 𝐒𝐮𝐩𝐩𝐨𝐫𝐭 » : [𝐘𝐮𝐤𝐤𝐢 𝐂𝐡𝐚𝐭](https://t.me/Yukkisongsupport)
+┣★ 𝐂𝐡𝐚𝐭𓂸 » : [𝐘𝐮𝐤𝐤𝐢 𝐃𝐢𝐬𝐜𝐮𝐬](https://t.me/yukkisongsupport)
 ┗━━━━━━━━━━━━━━━━━┛
 
 💞 𝐉𝐮𝐬𝐭 𝐀𝐝𝐝 𝐌𝐞 » 𝐓𝐨 𝐘𝐨𝐮𝐫 𝐆𝐫𝐨𝐮𝐩 𝐀𝐧𝐝
@@ -270,11 +270,11 @@ __**🌷 𝐁𝐢𝐤𝐚𝐬𝐡 𝐕𝐢𝐝𝐞𝐨 𝐓𝐫𝐚𝐜𝐤 𝐈
 𝐍𝐨 𝐋𝐚𝐠 𝐕𝐂 𝐌𝐮𝐬𝐢𝐜 𝐏𝐥𝐚𝐲𝐞𝐫 𝐁𝐨𝐭.
 
 ┏━━━━━━━━━━━━━━━━━┓
-┣★ 𝐎𝐰𝐧𝐞𝐫'𝐱𝐃 : [𝐁𝐢𝐤𝐚𝐬𝐡 𝐇𝐚𝐥𝐝𝐞𝐫](https://t.me/BikashHalder)
-┣★ 𝐎𝐰𝐧𝐞𝐫'𝐱𝐃 : [𝐀𝐝𝐢𝐭𝐲𝐚 𝐇𝐚𝐥𝐝𝐞𝐫](https://t.me/AdityaHalder)
-┣★ 𝐔𝐩𝐝𝐚𝐭𝐞𝐬 » : [𝐁𝐠𝐭 𝐎𝐟𝐟𝐢𝐜𝐢𝐚𝐥](https://t.me/BikashGadgetsTech)
-┣★ 𝐒𝐮𝐩𝐩𝐨𝐫𝐭 » : [𝐁𝐠𝐭 𝐂𝐡𝐚𝐭](https://t.me/Bgt_Chat)
-┣★ 𝐂𝐡𝐚𝐭𓂸 » : [𝐀𝐝𝐢𝐭𝐲𝐚 𝐃𝐢𝐬𝐜𝐮𝐬](https://t.me/AdityaDiscus)
+┣★ 𝐎𝐰𝐧𝐞𝐫'𝐱𝐃 : [𝐉𝐊 𝐀𝐁𝐇𝐈](https://t.me/JK_Abhishek)
+┣★ 𝐎𝐰𝐧𝐞𝐫'𝐱𝐃 : [𝐀𝐁𝐇𝐈 𝐇𝐚𝐥𝐝𝐞𝐫](https://t.me/Jk_abhishek)
+┣★ 𝐔𝐩𝐝𝐚𝐭𝐞𝐬 » : [𝐘𝐮𝐤𝐤𝐢 𝐎𝐟𝐟𝐢𝐜𝐢𝐚𝐥](https://t.me/Yukkisongupdate)
+┣★ 𝐒𝐮𝐩𝐩𝐨𝐫𝐭 » : [𝐘𝐮𝐤𝐤𝐢 𝐂𝐡𝐚𝐭](https://t.me/Yukkisongsupport)
+┣★ 𝐂𝐡𝐚𝐭𓂸 » : [𝐘𝐮𝐤𝐤𝐢 𝐃𝐢𝐬𝐜𝐮𝐬](https://t.me/yukkisongsupport)
 ┗━━━━━━━━━━━━━━━━━┛
 
 💞 𝐉𝐮𝐬𝐭 𝐀𝐝𝐝 𝐌𝐞 » 𝐓𝐨 𝐘𝐨𝐮𝐫 𝐆𝐫𝐨𝐮𝐩 𝐀𝐧𝐝
